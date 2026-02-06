@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VARR800213HBCZSN05
+VARR800213HBCZSN05
